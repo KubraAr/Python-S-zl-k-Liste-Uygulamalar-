@@ -1,0 +1,1 @@
+# Python-S-zl-k-Liste-Uygulamalar-
